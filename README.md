@@ -1,2 +1,2 @@
 # hello-world_2
-Messing around tryna understand stuff.
+Hi. This is me messing around. For the second time. XD
